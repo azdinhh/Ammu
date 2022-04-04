@@ -5,7 +5,7 @@
 
 ## `JOIN AMMU WHATSAPP GROUP`
 
-  [![join](https://cliply.co/wp-content/uploads/2021/08/372108180_WHATSAPP_ICON_400.gif)](https://chat.whatsapp.com/Fz6MPHhRIl840px7eRuYYr)
+  [![join](https://user-images.githubusercontent.com/102433984/161557679-100bcc4f-d90e-424c-9ceb-754b73fb3bcf.gif)](https://chat.whatsapp.com/Fz6MPHhRIl840px7eRuYYr)
 
 
 ## `FORK AND CHANGE SETTINGS`
